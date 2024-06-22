@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @NaveenBalaji
+- 👀 I’m interested in Gaming, Travelling, Music
+- 🌱 I’m currently learning data science
+- 💞️ I’m looking to collaborate on projects with a scope for major innovations
+- 📫 How to reach me : naveenbalajiganesh@gmail.com
+- ⚡ Fun fact: I love Bikes than Cars
